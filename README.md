@@ -1,0 +1,2 @@
+# MODADDON-PACK-VN-KHANG0-0
+Việt Hóa Mod Pack
